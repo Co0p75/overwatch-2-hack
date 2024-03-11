@@ -1,4 +1,4 @@
-![2](https://github.com/Co0p75/overwatch-2-hack/assets/163035978/9d9ab897-0594-4928-8a86-b39b5cb2c72d)# Extern4l: Become invincible
+# Extern4l: Become invincible
 
 ### Extern4l is a cheat that will surprise you with its capabilities and unrivaled protection from detection. In this article we will tell you how to install and use it, making your game even more interesting and exciting.
 
